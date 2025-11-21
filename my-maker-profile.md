@@ -15,7 +15,7 @@
 
 **My hobbies include | 我的爱好包括**: cycling, exploring new technologies, and thinking about how to improve human connections
 
-**One interesting thing about me | 关于我的一件有趣的事**: I believe that most relationship problems come from not knowing how to express ourselves rather than lack of care.
+**One interesting thing about me | 关于我的一件有趣的事**: On the way to be an excellent doer.
 
 ---
 
